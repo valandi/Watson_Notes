@@ -66,6 +66,9 @@ I may also have some friends stop by every now and then.
 
 ## Contact
 Chris' number - (443) 722-0213
+
 Victoria's number - (646) 331-8261
+
 Caleb's number - (443) 742-4828
+
 Vet - Ruxton Animal Hospital, (410) 296-0890
